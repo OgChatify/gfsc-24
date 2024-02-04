@@ -1,1 +1,1 @@
-# Manjul's Gallery
+# GFSC SSC-24 Batch all pictures
